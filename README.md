@@ -1,1 +1,1 @@
-
+Welcome to MyBike, your premier destination for the world of high-tech carbon bikes. At MyBike, we're passionate about cycling and committed to providing you with top-of-the-line carbon bikes that elevate your riding experience to a new level.
